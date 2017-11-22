@@ -1,1 +1,1 @@
-practice and misc notes :school_satchel:
+:school_satchel: practice and misc notes
