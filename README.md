@@ -1,1 +1,1 @@
-:school_satchel: :computer: practice and misc notes
+:school_satchel: practice and misc notes
